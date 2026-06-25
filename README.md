@@ -1,2 +1,0 @@
-# Fotos-inventario-Monterrico
-Prueba
